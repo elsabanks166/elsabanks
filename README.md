@@ -1,1 +1,1 @@
-{"open": true, "url": "https:\/\/www.betv27.cc"}
+{"open": 1, "url": "https:\/\/tolike.in"}
